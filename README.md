@@ -33,4 +33,4 @@ USS ONE Team (УСС 1 ЕООД) – специализиран партнь
 #### Имейл: contact@2dbg.org
 #### Адрес: Габрово, ул. Никола Войновски 8 
 
-![screencapture-127-0-0-1-8000-2025-06-12-21_57_23.png](..%2FDownloads%2Fscreencapture-127-0-0-1-8000-2025-06-12-21_57_23.png)
+![screencapture-127-0-0-1-8000-2025-06-12-21_57_23](https://github.com/user-attachments/assets/c62e94bf-430f-41bd-b3e6-4cd5634ba17e)
