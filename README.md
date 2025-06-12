@@ -1,4 +1,4 @@
-# INS@RAIS CNC CNC Course 🚀
+# INS@RAIS CNC Course 🚀
 
 ## Deployed here: https://instruktiraime.pythonanywhere.com/
 
